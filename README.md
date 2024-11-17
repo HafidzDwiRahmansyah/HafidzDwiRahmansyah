@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 Tentang Saya:
 🔭 Saya sedang bekerja<br>👯 Saya sedang berkolaborasi<br>🤝 Saya masih belajar<br>🌱 Saya sedang belajar<br>💬 Tanyakan sesuatu<br>⚡ Ehehehe
 
 
